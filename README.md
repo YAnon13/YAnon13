@@ -4,12 +4,18 @@
 - 💞️ I’m looking to collaborate on this
 - 📫 How to reach me ...
 
-Prepare for trouble! 
+Prepare for trouble!
+
 And make it double!
+
 To protect the world from  devastation!
+
 To unite all peoples within all nations!
+
 To denounce the all the just-a-way!
+
 To extend our beyond the Milky Way!
+
 
 🚀 Python is love 🚀
 
